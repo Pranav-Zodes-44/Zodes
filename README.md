@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Zodes-44 / Zodes / Pranav (Zodes was taken 😢)
+- 👋 Hi, I’m @Pranav-Zodes-44 / Zodes / Pranav (Zodes was taken 😢)
 - 👀 I’m interested in gaming, photography, [streaming](https://www.twitch.tv/zodes_) and anything tech related. 
 - 🌱 I’m currently learning Java!
 - 📫 How to reach me:
